@@ -1,4 +1,4 @@
-# kaliwallpapers by Dorian
+# kaliwallpapers by Ghost
 Visit me at http://dorian.pro<br />
 I hope you enjoy the wallpapers, cheers!
 
